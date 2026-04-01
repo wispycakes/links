@@ -4,3 +4,4 @@ https://discord.com/
 https://twitter.com/
 https://pornhub.com/
 https://fanulu.com/
+https://nutaku.net/
