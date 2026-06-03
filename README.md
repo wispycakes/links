@@ -3,5 +3,5 @@ https://instagram.com/
 https://discord.com/
 https://twitter.com/
 https://pornhub.com/
-https://fanulu.com/
+https://nuluhub.com/
 https://nutaku.net/
